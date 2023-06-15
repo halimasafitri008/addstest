@@ -1,1 +1,1 @@
-https://cheapenleaving.com/r4sh5khdc?key=b5bfb0ea0dc9d75050d80494944961cd
+<script type='text/javascript' src='//cheapenleaving.com/d1/7f/54/d17f54f6bd4b1191153bca2c92ff9881.js'></script>
